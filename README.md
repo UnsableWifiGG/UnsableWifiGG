@@ -1,3 +1,3 @@
-that was my first coding
-
-
+you got rickrolled!
+never trust note thing
+(joke)
