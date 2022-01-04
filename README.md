@@ -1,0 +1,2 @@
+README.md
+braveinstaller.exe
